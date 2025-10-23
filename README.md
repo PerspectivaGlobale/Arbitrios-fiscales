@@ -1,1 +1,2 @@
 # Arbitrios-fiscales
+Resulta, en verdad, ingrata esta tarea en que estamos empeñados y que consiste en combatir ciertos arbitrios fáciles que se proyectan para resolver las dificultades del Erario Público, proponiendo en cambio como lo hemos hecho en otra oportunidad y lo reiteramos en la presente la implantación de contribuciones directas que tienen ,por lo que a nuestra propaganda respecta, el pésimo inconveniente de «aparentar» ser más graves y más perjudiciales para todos los habitantes del país que los arbitrios de la referencia. 
